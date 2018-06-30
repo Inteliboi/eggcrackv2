@@ -1,3 +1,3 @@
-![](https://b1nzy.ratelimited.me/e920n4.png)
+![](https://i.imgur.com/SQMWjsD.png)
 
 Only the best Minecraft account cracker, but reimagined!
